@@ -15,5 +15,5 @@ _https://goo.gl/42T2Do_
 
 즐겨 듣는 노래를 소개해드리지요. 보든말든 알아서 하시구. 
 
-# [Toothbrush - DNCE](https://www.youtube.com/watch?v=UrUJyKsLQeU)
-# [잇힝](http://file1-3.bobaedream.co.kr/multi_image/strange/2014/11/26/08/AQw54750acca9e28.gif)
+# [Toothbrush - DNCE](http://file1-3.bobaedream.co.kr/multi_image/strange/2014/11/26/08/AQw54750acca9e28.gif)
+
